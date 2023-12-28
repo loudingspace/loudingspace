@@ -16,5 +16,5 @@ Passionate about technology and data; recent AiCore data engineering immersion g
 - 💬 Ask me about career change!
 - 📫 How to reach me: send me a message!
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I speak a rare minority language
+- ⚡ Fun fact: I feature (blink and you'll miss me) in an international bestseller
 
